@@ -1,4 +1,4 @@
-# GROUP-6
+
 DUKUZEMARIYA Aimee clenie
 ISHIMWE Romain
 MAHIRWE Jean Pierre
