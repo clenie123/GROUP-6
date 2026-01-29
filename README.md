@@ -1,1 +1,8 @@
 # GROUP-6
+DUKUZEMARIYA Aimee clenie
+ISHIMWE Romain
+MAHIRWE Jean Pierre
+UWANYIRIJURU Chance Honoline
+UMUTONIWASE Anick
+BARAHIRWA Yves
+ISHIMWE MUCYO Anselime
